@@ -1,4 +1,4 @@
-# ABCページ
+# みんな大好き金清くん
 
 kanekiyo >
-[kanekiyo](https://takajo-soft09.github.io/-/)
+[カネキヨス](https://takajo-soft09.github.io/-/)
